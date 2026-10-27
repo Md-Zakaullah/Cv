@@ -56,7 +56,7 @@ Highly adaptable **Technical SEO Specialist and Web Developer** with **6+ years 
 
 ## EDUCATION & PERSONAL DETAILS
 *   **Legal Name:** Md Zakaullah
-*   **Date of Birth:** September 23, 1991 (Certificate) / 1989 (Actual)
+*   **Date of Birth:** September 23, 1991
 *   **Languages Known:** English, Hindi, Urdu
 *   **Notice Period:** Available to join **Immediately**
 *   **Preferred Location:** Open to opportunities in Delhi, Remote, or Any Location
